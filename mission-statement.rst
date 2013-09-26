@@ -1,22 +1,23 @@
-==================================================================================
-Wake Up: Young Buddhists and non-Buddhists for a Healthy and Compassionate Society
-==================================================================================
+Wake Up 
+=======
+*Young Buddhists and non-Buddhists for a Healthy and Compassionate Society*
 
 Nutshell
-********
-Wake Up is an active global community of young mindfulness practitioners, aged 18-35,
-inspired by the teachings of Zen Master and peace activist Thich Nhat Hanh. We come
-together to practice mindfulness in order to take care of ourselves, nourish happiness
-and contribute to building a healthier and a more compassionate society. 
+--------
+Wake Up is an active global community of young mindfulness practitioners,
+**aged 18-35**, inspired by the teachings of Zen Master and peace activist Thich Nhat
+Hanh. We come together to practice mindfulness in order to take care of ourselves,
+nourish happiness and contribute to building a healthier and a more compassionate
+society. 
 
-We want to help our world which is overloaded with intolerance, discrimination,
+*We want to help our world which is overloaded with intolerance, discrimination,
 craving, anger and despair. Seeing the environmental degradation caused by our society,
 we want to live in such a way that our planet Earth can survive for a long time.
 Practicing mindfulness, concentration and insight, enables us to cultivate tolerance,
-non-discrimination, understanding and compassion in ourselves and the world.
+non-discrimination, understanding and compassion in ourselves and the world.*
 
 Practice: essence
-*****************
+-----------------
 We follow the Five Mindfulness Trainings, which are ethical guidelines that offer
 concrete practices of true love and compassion, and a path towards a life in harmony
 with each other and the Earth. These guidelines are the foundation of our lives and
@@ -27,7 +28,7 @@ live life deeply and more happily, and to use compassionate listening and loving
 to help restore communication and reconcile with others. 
 
 Roots/inclusiveness
-*******************
+-------------------
 The Wake Up movement is inspired by Buddhism's long tradition of wisdom and practices
 which help cultivate understanding and love; it is not based on beliefs or ideology. The
 spirit of our practice is close to the spirit of science; both help us cultivate an open
@@ -36,7 +37,7 @@ You can join as a Christian, a Jew, a Muslim, as an agnostic or atheist, or memb
 other spiritual or religious tradition.
 
 What we do
-**********
+----------
 We aspire to be a place of refuge, nourishment and support for anyone with an aspiration
 to transform their own suffering and contribute to a healthy and compassionate society.
 We gather weekly or monthly in Wake Up groups to practice sitting and walking meditation,
@@ -47,7 +48,7 @@ practice. Many groups also organize music evenings, meditation flashmobs, picnic
 and other special events or actions. 
 
 You can do it
-*************
+-------------
 If you are a young person inspired to cultivate mindfulness and compassion in your life,
 we invite you to join the Wake Up movement in your country. Wake Up offers a way to pool
 our energy and act collectively, to create the world we want to live in! Anyone can get
