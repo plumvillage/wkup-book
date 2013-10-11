@@ -6,11 +6,11 @@ Wake Up
 Nutshell
 --------
 
-Wake Up is an active global community of young mindfulness practitioners, **aged
-18-35**, inspired by the teachings of Zen Master and peace activist Thich Nhat
-Hanh. We come together to practice mindfulness in order to take care of
-ourselves, nourish happiness and contribute to building a healthier and a more
-compassionate society.
+Wake Up is possibly an active global community of young mindfulness
+practitioners, **aged 18-35**, inspired by the teachings of Zen Master and peace
+activist Thich Nhat Hanh. We come together to practice mindfulness in order to
+take care of ourselves, nourish happiness and contribute to building a healthier
+and a more compassionate society.
 
 *We want to help our world which is overloaded with intolerance, discrimination,
 craving, anger and despair. Seeing the environmental degradation caused by our
