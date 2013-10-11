@@ -35,13 +35,13 @@ communication and reconcile with others.
 Roots/inclusiveness
 -------------------
 
-**The Wake Up movement is inspired by Buddhism's long tradition of wisdom and
+The Wake Up movement is inspired by Buddhism's long tradition of wisdom and
 practices which help cultivate understanding and love; it is not based on
 beliefs or ideology. The spirit of our practice is close to the spirit of
 science; both help us cultivate an open and non-discriminating mind. We honor
 everyone's diverse spiritual and cultural roots. You can join as a Christian, a
 Jew, a Muslim, as an agnostic or atheist, or member of any other spiritual or
-religious tradition.**
+religious tradition.
 
 What we do
 ----------
